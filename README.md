@@ -1,5 +1,13 @@
 ### Game Title: **Lux of the Undying**
 
+
+**Gameplay Preview
+For a closer look at the gameplay of Lux of the Undying, check out the following YouTube channel:
+
+Gameplay Videos - ThisGonnaKillAhMad
+
+
+---
 **Plot Overview:**
 
 In the twilight realm between life and death, an Undead soul named **Volaris** finds himself trapped. His mortal coil has been severed, and yet, he cannot pass into the afterlife. His soul is bound by a mysterious force—a **cursed lux**—an ethereal glow that signifies the last remnants of his mortal essence. The lux is both a blessing and a curse. It keeps him tethered to the physical world, but at a cost: it prevents his soul from finding peace, leaving him in an endless limbo. 
