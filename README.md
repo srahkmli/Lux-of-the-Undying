@@ -1,12 +1,14 @@
 ### Game Title: **Lux of the Undying**
 
 
-**Gameplay Preview
+**Gameplay Preview**
 For a closer look at the gameplay of Lux of the Undying, check out the following YouTube channel:
 
-Gameplay Videos - ThisGonnaKillAhMad
+[Gameplay Videos - ThisGonnaKillAhMad](https://www.youtube.com/@thisgonnakillahmadbysrahkm2058)
 
+---
 
+This can be linked in the documentation or readme to offer viewers a direct preview of the game's mechanics, story, and overall aesthetic.
 ---
 **Plot Overview:**
 
